@@ -2,7 +2,7 @@
 
 ## Reginald Andrei D. Ferrer - Student #05 of 9-Samat
 
-I attempt to pursue excellence in all my endeavors, balancing life with all my other responsibilities that matter to me.
+I attempt to pursue excellence in all my endeavors, balancing life with all my other responsibilities that matter to me. Additionally, my hobbies include playing sports, watching movies, playing video games, and cooking.
 
 ## John Oliver S. Paderna - #Student #12 of 9-Samat
 Hobbies include music and games
