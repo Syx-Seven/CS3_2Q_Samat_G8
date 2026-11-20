@@ -2,7 +2,7 @@
 
 ## Reginald Andrei D. Ferrer - Student #05 of 9-Samat
 
-I attempt to pursue being an excellent person in all my endeavors. Balancing life with all my other responsibilities
+I attempt to pursue excellence in all my endeavors, balancing life with all my other responsibilities that matter
 
 ## John Oliver S. Paderna - Student 12 of 9-Samat
 
